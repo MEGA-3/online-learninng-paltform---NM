@@ -1,1 +1,1 @@
-# online-learninng-paltform---NM
+# online-learning-paltform---NM
